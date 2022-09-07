@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sabiyadr
+- 👀 I’m interested in ... Taekwondo, Music, Editing, and Coding.
+- 🌱 I’m currently learning ... Computer Programming.
